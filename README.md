@@ -7,4 +7,4 @@ Talking about Personal Stuffs:
 - 👯 I’m looking to collaborate on every project
 - 💬 Ask me about anything happy to help 😊
 - 📫 How to reach me:[linkedin]https://www.linkedin.com/in/girish-musham-618585137/
-- ⚡ Fun fact: i love to read book personel favourite book The Miracle of Mindfulness Book by Thich Nhat Hanh, also listning tho music is one my nice habits 🎧
+- ⚡ Fun fact: i love to read book personel favourite book The Miracle of Mindfulness Book by Thich Nhat Hanh, also listning to music is one my nice habits 🎧
